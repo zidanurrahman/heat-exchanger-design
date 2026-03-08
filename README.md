@@ -104,5 +104,5 @@ Heat exchangers are present in **every step of petrochemical processing:**
 
 ---
 
-*Zidanur Rahman| Independent Chemical Engineering Study | 2025*
+*Zidanur Rahman | Independent Chemical Engineering Study | 2025*
 *Prepared as part of Romanian Government Scholarship application*
